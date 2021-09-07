@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MehdiElmoukhliss
+- 👀 I’m interested in Collective Intelligence Platforms
+- 🌱 I’m constantly learning
+- 💞️ I’m looking to collaborate on collaboration platforms
+- 📫 How to reach me: mehdi@marylink.io
